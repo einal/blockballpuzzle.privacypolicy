@@ -1,1 +1,1 @@
-# penta-quad..privacypolicy
+# Block & Ball - Puzzle Privacy Policy
